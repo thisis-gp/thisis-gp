@@ -30,7 +30,7 @@ Passionate about technology and always eager to learn new things! 🌟
 
 ## 📫 How to Reach Me
 - 📧 Email: [am400718@gmail.com](mailto:am400718@gmail.com)
-- 🐦 Twitter: [@his_isGP](https://x.com/this_isGP?t=CmY76e4sC7kyeMxyk3bf6w&s=09)
+- 🐦 Twitter: [@this_isGP](https://x.com/this_isGP?t=CmY76e4sC7kyeMxyk3bf6w&s=09)
 - 🌐 Website: [thisisgp.com](https://thisis-gp.github.io/thisis_gp/)
 
 ## 🤝 Let's Connect
